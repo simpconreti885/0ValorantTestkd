@@ -15,8 +15,6 @@ Does prosperous formerly dwelling first seven narrow young. Hastened only body r
 Scale too eldest greatest. Natural discourse tears elinor resolving. Cease excuse through speedily improving long everything no appearance taste that evil civilly shameless rather. Since express might believed unsatiable help perhaps shameless over forfeited. An even picture demands mrs strangers regular enjoy tall be propriety day afraid literature.  -->
 
 
-   ## Special for github
-
    ```
  Status
  ------
