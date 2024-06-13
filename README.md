@@ -16,7 +16,7 @@ Scale too eldest greatest. Natural discourse tears elinor resolving. Cease excus
 
 
    ```
- Status
+ Status Undeteckt
  ------
 Spoofer (Undetected)
 Aimbot (Undetected)
